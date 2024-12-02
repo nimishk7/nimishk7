@@ -1,5 +1,5 @@
 # 💫 About Me:
-Currently, I am pursuing a full-stack programming course. It is my goal to find a Web Development company where I can utilize my skills and hard work
+Currently, I am looking for openings in IT industry's for a professional career start. It is my goal to find a Web Development company where I can utilize my skills and hard work
 
 
 ## 🌐 Socials:
